@@ -1,2 +1,2 @@
 # Chewy-s-grocery-store
-mainly engaged in cute/cool jewellery
+mainly engaged in cute/cool ornaments
